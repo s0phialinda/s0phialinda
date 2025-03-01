@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hiiiiii, sou a Sofia :3
+
+
 
 <!--
 **s0phialinda/s0phialinda** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
